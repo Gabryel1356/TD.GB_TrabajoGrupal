@@ -1,1 +1,0 @@
-# TD.GB_TrabajoGrupal
